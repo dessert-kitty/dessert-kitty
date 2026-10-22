@@ -1,4 +1,4 @@
 <p align="center">
-> revamping nya! ^w^
+> i am the only america yume say so otherwise and i will commit a violent suicide
  
 </a>
