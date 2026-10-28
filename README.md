@@ -1,4 +1,4 @@
 <p align="center">
-> i am the only america yume say so otherwise and i will commit a violent suicide
- 
+<img width="500" height="450" alt="image" src="https://github.com/user-attachments/assets/cabbfdb4-3f0c-4b05-a0ac-b064a31a8f4f" />
+placeholder
 </a>
